@@ -1,0 +1,1 @@
+A high-achieving professional with outstanding experience in AML/KYC Investigations. Closely monitored and identified suspicious behaviors related to possible monetary fraud and Anti-Money Laundering. Demonstrated knowledge and experience in research sources and methods, with thorough experience conducting background research on people and companies.
